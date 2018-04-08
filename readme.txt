@@ -1,2 +1,3 @@
 ﻿This is a readme file.
-This is the second line.
+
+I will use my note of UM-Madison for the first trial at github. 

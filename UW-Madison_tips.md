@@ -41,9 +41,9 @@ AT&T营业厅打车十分钟到了，还可以顺便买点生活用品
 有营业厅在west towne mall 可以顺便采购一下 稍微有点远  
 5刀国际通话
 
+![](pic\离学校最近的AT&T.png) 
 
-![](C:\Users\love\Desktop\‎\UW-Madison\pic\离学校最近的AT&T.png)
-![](pic\离学校最近的AT&T.png)  
+ 
 离学校最近的att 还能去target采购 hilldale可以去吃muramoto  dumpling haus-雪菜肉丝面 
 从距离最远的chad打Uber过去也就10刀 湖区离target近 有免费公交
 
